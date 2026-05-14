@@ -1,0 +1,1 @@
+The dashboard analysis revealed that total mobile sales reached 769M, generated through 3.8K+ transactions and 19K units sold. Among all brands, Apple contributed the highest sales share at 21.01%, while July recorded the peak monthly sales quantity with 1,700 units sold, helping identify top-performing brands and seasonal demand trends.
